@@ -1,8 +1,8 @@
 - ✌ Hi, I’m @AYUSHXWD09
-- 🛡 I’m Interested In Ethical Hacking...
-- 🌱 I’m Currently Learning Python...
+- 🛡 I’m Interested In Ethical Hacking.
+- 🌱 I’m Currently Learning Python.
 - 🗿 If You Spend Your Whole Life Waiting For The Storm, You’ll Never Enjoy The Sunshine.
-- _____— राधे राधे ;♡🤌🩷🪽
+- — जय श्री राम ;♡🤌🚩
 - 😎 We Are Anonymous.
 - 😗 We Are Legion.
 - 🤡 We Fight Against Corruption.
